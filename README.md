@@ -12,3 +12,4 @@ Você pode entrar em contato comigo 📫:
 * marymacedo2401@gmail.com
 
 ![](https://media1.tenor.com/m/5WtLjGocPp0AAAAC/jean-luc-godard-john-luke-godard.gif)
+1[](https://media1.tenor.com/m/vc7yuenl7EYAAAAC/anna-karina-jean-luc-godard.gif)
